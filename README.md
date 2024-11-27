@@ -1,6 +1,5 @@
 # Uzumaki
-<img width="1028" alt="Screenshot 2024-11-28 at 0 35 19" src="https://github.com/user-attachments/assets/d2def072-f9f8-4e18-8d60-3b0901067a9f">
-
+<img width="1108" alt="Screenshot 2024-11-28 at 0 45 43" src="https://github.com/user-attachments/assets/e7bf6ced-8caf-42f3-9b07-6dc900599972">
 
 
 ## Overview 📝
