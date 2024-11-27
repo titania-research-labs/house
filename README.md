@@ -52,7 +52,7 @@
 <img width="1200" alt="Screenshot 2024-11-27 at 18 38 29" src="https://github.com/user-attachments/assets/60ba118b-13ac-4b55-9de3-6db7d9611f1e">
 
 
-### Progcrypto's picture
+### Progcrypto　Camp's picture
 
 ![GZqcnvpaAAI9Tbl](https://github.com/user-attachments/assets/121126a1-56ac-4f17-80cf-6fd8b39f9ee8)
 <img width="1200" alt="Screenshot 2024-11-27 at 18 55 31" src="https://github.com/user-attachments/assets/6f11d771-00ba-4fc1-91a8-1d7d1acccf89">
