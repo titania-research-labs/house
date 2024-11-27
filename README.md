@@ -53,8 +53,12 @@ crypTokyoは、暗号学や経済学の分野の研究者や関係者が共同�
 
 
 ### Progcrypto's picture
-![GZqcnuPaAAENzCY](https://github.com/user-attachments/assets/c9a87296-ff5d-4fd8-88f4-ff482f7c6b33)
+
 ![GZqcnvpaAAI9Tbl](https://github.com/user-attachments/assets/121126a1-56ac-4f17-80cf-6fd8b39f9ee8)
-![2024-11-27 18 33 53](https://github.com/user-attachments/assets/92cb7126-f968-482a-a32e-ad9462677f1c)
+<img width="1200" alt="Screenshot 2024-11-27 at 18 55 31" src="https://github.com/user-attachments/assets/6f11d771-00ba-4fc1-91a8-1d7d1acccf89">
+<img width="1200" alt="Screenshot 2024-11-27 at 18 55 58" src="https://github.com/user-attachments/assets/08bfad5a-70e6-4226-90f0-0fc9c623afc8">
+
+
+
 
 
